@@ -1,1 +1,1 @@
-# my-resume.github.io
+# My-Resume-Coding-Ninjas.github.io
