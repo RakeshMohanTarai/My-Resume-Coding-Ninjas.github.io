@@ -1,1 +1,1 @@
-# My-Resume-Coding-Ninjas.github.io
+# My Resume Coding Ninjas
